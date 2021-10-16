@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alfons44
+- 👀 I’m interested in Nothing, I hate Humans
+- 🌱 I’m currently learning too much for my little brain
+- 💞️ I’m looking to collaborate on getting distance from Humans that I didnt like
+- 📫 How to reach me? Please not, dont try it
